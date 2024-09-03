@@ -1,60 +1,7 @@
-# Profil Marsya - Boatman
+## WELCOME TO MY PROFILE ##
 
-### 👤 **Nama**: Marsya pramesthi tyast sumarno
+![ollaaa](https://github.com/MarsyaPramesthi/MarsyaPramesthi/blob/main/IMG_8075.HEIC)
 
-### 📅 **Usia**: [18]
+My name is Marsya Pramesthi Tyast Sumarno, but you guys can call me yours😉. Im currently studying as a university student at Gadjah Mada University on geophysics program, im on my third semester.
 
-### 🛶 **Pengalaman**
-- **Lama Berpengalaman**: [Berapa lama Marsya telah menjadi boatman]
-- **Jenis Perahu**: [perahu kertas]
-- **Area Pemanduan**: [Area di mana Marsya biasa memandu perahu, seperti sungai, laut, danau]
-
-### 🛠 **Keahlian**
-- Panduan perahu untuk [jenis tur atau aktivitas]
-- Kemampuan navigasi dan memahami kondisi cuaca
-- Pengetahuan lokal yang mendalam tentang rute-rute perahu populer
-- Pengalaman menjaga keselamatan penumpang
-
-### 📜 **Kualifikasi**
-- [Sertifikasi atau pelatihan yang relevan]
-
-### 💬 **Kesan Diri**
-- Ramah, sabar, dan profesional
-- Selalu memastikan penumpang merasa aman dan nyaman
-- Berkomitmen menjaga kelestarian wilayah perairan
-
-### 🏡 **Latar Belakang**
-- [Informasi tentang asal Marsya, bagaimana ia menjadi seorang boatman]
-
-### 🎣 **Hobi dan Minat**
-- jadi cewek mu
-# Profil Marsya - Boatman
-
-### 👤 **Nama**: Marsya pramesthi tyast sumarno
-
-### 📅 **Usia**: [18]
-
-### 🛶 **Pengalaman**
-- **Lama Berpengalaman**: [Berapa lama Marsya telah menjadi boatman]
-- **Jenis Perahu**: [perahu kertas]
-- **Area Pemanduan**: [Area di mana Marsya biasa memandu perahu, seperti sungai, laut, danau]
-
-### 🛠 **Keahlian**
-- Panduan perahu untuk [jenis tur atau aktivitas]
-- Kemampuan navigasi dan memahami kondisi cuaca
-- Pengetahuan lokal yang mendalam tentang rute-rute perahu populer
-- Pengalaman menjaga keselamatan penumpang
-
-### 📜 **Kualifikasi**
-- [Sertifikasi atau pelatihan yang relevan]
-
-### 💬 **Kesan Diri**
-- Ramah, sabar, dan profesional
-- Selalu memastikan penumpang merasa aman dan nyaman
-- Berkomitmen menjaga kelestarian wilayah perairan
-
-### 🏡 **Latar Belakang**
-- [Informasi tentang asal Marsya, bagaimana ia menjadi seorang boatman]
-
-### 🎣 **Hobi dan Minat**
-- jadi cewek mu
+I currently interrest in nothing actually, but i like doing arts even its not really productive as is the past. Bout my hobby? i dont have any, if you insist i can say that i like to sleep.
